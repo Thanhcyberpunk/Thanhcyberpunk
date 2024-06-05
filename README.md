@@ -1,4 +1,2 @@
-
-![cyberpunk_lucy1](https://github.com/Thanhcyberpunk/Thanhcyberpunk/assets/161702157/f7950b8e-6fe4-4fc8-8349-c9a01be60938)
-
+![cyberpunk_lucy](https://github.com/Thanhcyberpunk/Thanhcyberpunk/assets/161702157/aa53f3c4-8a1b-4d6b-9fdb-1fc336110079)
 
